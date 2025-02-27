@@ -12,6 +12,14 @@
 ![image](https://github.com/user-attachments/assets/5fde3976-1b51-4a3b-8e6f-9edf5c4c71a6)
 
 
+## THAM KHẢO THÊM:
+* https://github.com/trietptm/De-Thi-Hoc-Sinh-Gioi-Toan-Lop-9-Ha-Noi
+* https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-THPT-Hanoi
+* https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Chuyen-SPHN
+* https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-SPHN
+* https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Chuyen-KHTN-HN
+* https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-KHTN-HN
+* 
 
 
 
