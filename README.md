@@ -12,6 +12,8 @@
 
 ![image](https://github.com/user-attachments/assets/b5c8496a-0b45-48fb-ad9b-0f9d97440c8e)
 
+![image](https://github.com/user-attachments/assets/e416e3f4-e31b-4f2f-bf02-19afe18bf254)
+
 ## 2022-2023:
 ![image](https://github.com/user-attachments/assets/baf842fd-c3cf-4f77-929e-f051ae4ed366)
 
