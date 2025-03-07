@@ -1,5 +1,6 @@
 # De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-THPT-Hanoi
-* Đề Thi Toán Chuyên Tuyển Sinh Vào Lớp 10 Chuyên Toán, Chuyên Tin Trung Học Phổ Thông (THPT) ở Hà Nội
+* Đề Thi Toán Chuyên Tuyển Sinh Vào Lớp 10 Chuyên Toán, Chuyên Tin Trung Học Phổ Thông (THPT) ở Hà Nội (THPT Chuyên Hà Nội - Amsterdam, THPT Chuyên Nguyễn Huệ, THPT Chuyên Chu Văn An và THPT Chuyên Sơn Tây)
+* 
 
 ## 2023-2024:
 ![image](https://github.com/user-attachments/assets/7815a68f-1cb7-4501-8708-8135a7984df7)
