@@ -2,7 +2,7 @@
 * Đề Thi Toán Chuyên Tuyển Sinh Vào Lớp 10 Chuyên Toán, Chuyên Tin Trung Học Phổ Thông (THPT) ở Hà Nội
 
 ## 2023-2024:
-![image](https://github.com/user-attachments/assets/ad9b7e59-9995-499b-bdbb-4d7d03e723bc)
+![image](https://github.com/user-attachments/assets/7815a68f-1cb7-4501-8708-8135a7984df7)
 
 ![image](https://github.com/user-attachments/assets/b4697e2e-ab94-4457-b01c-c13bef8e55c8)
 
