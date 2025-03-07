@@ -24,6 +24,8 @@
 ![image](https://github.com/user-attachments/assets/5250cc34-e6ce-4cb6-a82f-aea8c5cda515)
 
 ## 2019-2020:
+![image](https://github.com/user-attachments/assets/97a0630c-8fd3-4b45-9a16-3de49a62d7f9)
+
 ![image](https://github.com/user-attachments/assets/f219385c-8862-4e95-a5af-7185de893045)
 * https://icdn.dantri.com.vn/thumb_w/1280/2019/06/03/de-thi-toan-chuyen-1559558211506.jpg
 
