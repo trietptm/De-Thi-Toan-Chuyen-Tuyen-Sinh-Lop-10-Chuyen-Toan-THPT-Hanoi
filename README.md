@@ -68,20 +68,44 @@
 ## 2006-2007:
 
 ## 2005-2006:
+![image](https://github.com/user-attachments/assets/03c54d29-e1ed-4218-91d2-a8e8b6875184)
+
+![image](https://github.com/user-attachments/assets/b0eb485b-65d4-4463-a607-4ddbffc84c76)
 
 ## 2004-2005:
+![image](https://github.com/user-attachments/assets/b979a91c-c1e0-4080-bdb3-883c186d11b3)
+
+![image](https://github.com/user-attachments/assets/5aab1b22-23dc-40c6-8b61-aa60d5894481)
 
 ## 2003-2004:
+![image](https://github.com/user-attachments/assets/6c233e77-aaef-448a-baf6-1998e272ece7)
+
+![image](https://github.com/user-attachments/assets/4a253ac6-3c24-4cc4-8b15-7f03af578168)
 
 ## 2002-2003:
+![image](https://github.com/user-attachments/assets/14ce71f8-50d9-4d4e-a411-6452deb0d91a)
+
+![image](https://github.com/user-attachments/assets/81e0526b-1132-446f-9029-f103fc12738d)
 
 ## 2001-2002:
+![image](https://github.com/user-attachments/assets/d1a1344f-79f5-4f25-81fb-57374b4a4623)
+
+![image](https://github.com/user-attachments/assets/e30d6972-20dc-4cc8-a70e-389bd71df710)
 
 ## 2000-2001:
+![image](https://github.com/user-attachments/assets/52f10a59-f118-46f6-bd28-d606dd596ba3)
+
+![image](https://github.com/user-attachments/assets/56a01885-4b81-49c3-b4a2-65b2e2e57503)
 
 ## 1999-2000:
+![image](https://github.com/user-attachments/assets/e3b43b3c-6218-4719-bad0-d6bc557a7b16)
+
+![image](https://github.com/user-attachments/assets/302af371-4c7b-4e48-a031-16aec9738d3a)
 
 ## 1998-1999:
+![image](https://github.com/user-attachments/assets/12ef72d3-53f4-4d2c-a845-33358d9e1af2)
+
+![image](https://github.com/user-attachments/assets/89aafbeb-3d49-47a3-b920-b4ffd41c2c44)
 
 ## 1997-1998:
 ![image](https://github.com/user-attachments/assets/bac52d41-1bfe-4385-b8e6-16605e241055)
